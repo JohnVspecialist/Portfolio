@@ -1,2 +1,2 @@
 # Portfolio
-All Prompts and Prompt Patterns are My property in any and all capacities.
+Here to secure a better future for Humans through Solving the problem of AI Alignment.
